@@ -1,1 +1,1 @@
-Independent full-stack developer with 3+ years of experience delivering solutions for sellers who use online marketplaces.
+Hi, I'm Jean-Luc Davern. I'm a full-stack developer specializing in software solutions for online marketplaces. 
